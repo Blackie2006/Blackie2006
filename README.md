@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blackie2006 [petname for my first laptop]
-- 👀 I’m interested in rejuvinating myself 
+- 👀 I’m interested in reinventing myself 
 - 🌱 I’m currently learning more about coding and scripts
 - 💞️ I’m looking to collaborate on how to regain control of my devices
 - 📫 How to reach me .. leave a message :)
